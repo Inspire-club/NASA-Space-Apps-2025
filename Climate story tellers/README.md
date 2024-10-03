@@ -1,1 +1,0 @@
-# iyna-gharbiya-chapter
